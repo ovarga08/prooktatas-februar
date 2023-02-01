@@ -1,2 +1,0 @@
-# prooktatas-februar
-# sajat gep
